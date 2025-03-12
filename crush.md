@@ -1,3 +1,3 @@
 # Write Your Crush Name
-> Chunchun maru - Marin Kitagawa <br>
+> Chunchunmaru - Marin Kitagawa <br>
 > Ankush - #############
